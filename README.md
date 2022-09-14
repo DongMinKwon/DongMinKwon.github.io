@@ -1,1 +1,0 @@
-# DongMinKwon.github.io
